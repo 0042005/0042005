@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @0042005
+- 👋 Hi, I’m @mian2005
 - 👀 I’m interested in digital marketing
 - 🌱 I’m currently learning native marketing
 - 💞️ I’m looking to collaborate on marketing agency
